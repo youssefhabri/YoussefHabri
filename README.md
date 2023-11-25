@@ -17,7 +17,8 @@ Here are some ideas to get you started:
 <br>
 
 I'm a 27 y/o software developer. <br> 
-I enjoy reading, music, [photography](https://www.instagram.com/youssefhabri/), and starting projects I'll never finish.
+I enjoy reading, music, [photography](https://www.instagram.com/youssefhabri/), and starting projects I'll never finish.<br>
+I also like K-Pop & K-Dramas!
 
 I'm also known in some places as **Sir Mittens ᓚᘏᗢ**
 
